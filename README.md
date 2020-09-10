@@ -1,2 +1,0 @@
-# Bui-Link
-New term
